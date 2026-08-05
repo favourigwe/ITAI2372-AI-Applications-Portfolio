@@ -1,0 +1,1 @@
+# ITAI2372-AI-Applications-Portfolio
